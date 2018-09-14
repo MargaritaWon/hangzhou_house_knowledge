@@ -6,7 +6,7 @@
 	   -- 实在对不起大家，issue已经关闭。Github是讨论代码的，讨论房子欢迎加群。
 	   -- 如果大家觉得写的不错，看就好。
 
-
+宝宝我爱你！！！！！！！！！！！！！！！！！！！！！！！！！
 
 [附上 gitbook地址，烦请大家移到gitbook上阅读 ](https://www.gitbook.com/read/book/houshanren/hangzhou_house_knowledge)
 
